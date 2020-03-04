@@ -25,4 +25,4 @@ Any redistribution or reproduction of part or all of the contents in any form is
 
 You may not, except with my expressed written permission, distribute or commercially exploit the content. You may not transmit it or store it on any other website or other form of electronic retrieval system.
 
-My CV is glutten-free and vegan friendly. No one was was harmed in the making of my CV and all information was sourced from my memory.
+My CV is glutten-free and vegan friendly. No one was harmed in the making of my CV and all information was sourced from my memory.
